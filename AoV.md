@@ -43,7 +43,7 @@ OpenMindClub - IA004 - 大作业
 
 而社交、情感、认知是泛娱乐内容用户的主要消费动机，尤其是社交化需求驱动最为显见。
 
-![img](http://www.199it.com/wp-content/uploads/2018/07/1532187050-2012-0706.png)
+![img](https://i.loli.net/2019/04/15/5cb3ea72e2c74.png)
 
 **移动游戏市场的兴盛**
 
